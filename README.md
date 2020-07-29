@@ -1,0 +1,1 @@
+# Default-mac-wallpapers-for-all
